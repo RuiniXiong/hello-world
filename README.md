@@ -3,4 +3,4 @@ Repository
 
 I'm Ruini.
 
-Name pronounced as Rainy. SOmethingg
+Name pronounced as Rainy.
